@@ -1,1 +1,1 @@
-crateing a new branch is quick.
+crateing a new branch is quick & simple.
